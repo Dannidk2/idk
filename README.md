@@ -1,2 +1,0 @@
-# idk
-Gay old man
